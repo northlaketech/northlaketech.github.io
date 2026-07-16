@@ -1,1 +1,1 @@
-north lake ventures - [nlvtx.com](https://nlvtx.com)
+Northlake Technologies - [northlake.tech](https://nlvtx.com)
