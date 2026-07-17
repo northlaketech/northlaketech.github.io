@@ -1,1 +1,1 @@
-Northlake Technologies - [northlake.tech](http://northlake.tech)
+Northlake Technologies - [northlake.tech](https://northlake.tech)
